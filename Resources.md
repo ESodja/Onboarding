@@ -11,3 +11,13 @@
 
 [Writing in the Sciences - Coursera](https://www.coursera.org/learn/sciwrite)
 - Covers helpful processes such as limiting filler words, using active voice, and other general tips and tricks to improve your writing
+
+## Grants and Scholarships
+
+- [*Biology Department scholarships*](http://www.biology.usu.edu/education/scholarships/graduate_scholarships)
+- [*Ecology Center Grants*](http://ecology.usu.edu/for_students/index) (Click on "Funding") 
+- [*College of Science*](https://www.usu.edu/science/pages/students/graduate-student) (scholarships listed on page)
+- [*RGS Funding for Travel*](http://rgs.usu.edu/graduateschool/travel-award/)
+- [*RGS Research Funding*](http://rgs.usu.edu/graduateschool/tuition-financial-aid/#)
+- [*NSF Funding Search*](https://www.nsf.gov/funding/index.jsp)
+- [*NSF GRFP*](https://www.nsfgrfp.org/)
